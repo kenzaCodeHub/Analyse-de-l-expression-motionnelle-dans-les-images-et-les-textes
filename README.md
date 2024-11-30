@@ -1,0 +1,1 @@
+C'est l'analyse de l'expression émotionnelle dans les images et les textes et l'examen de la relation entre eux. Cela implique d'explorer comment les émotions sont véhiculées à travers des éléments visuels, tels que les expressions faciales dans les images, et à travers les mots écrits.
